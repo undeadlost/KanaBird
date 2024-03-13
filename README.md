@@ -1,9 +1,7 @@
 <p align="center">
   <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/2a8be0ed-e28e-46d6-ad86-27f5329675ed"  <h1 align="center"> <strong> . . . There are balloons floating all over the place. It's so colorful . . .</strong> </h1> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/2b1332e5-2e1b-4ecc-9aa9-4a6d24b8e01e"<p align="center"> 
 
-&nbsp; 
 
-![tumblr_5c4dbe27d44ee92012fc8894da12c0a3_4d69d880_2048](https://github.com/undeadlost/KanaBird/assets/160256094/45b6be42-dc03-472d-a268-a1867d9563a5)
 
 &nbsp; 
 
