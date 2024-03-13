@@ -29,16 +29,16 @@
 &nbsp;  
  
 <p align="center">
- <strong>I'm a car and don't really interact because I'm a car </strong> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/de1c181b-7efa-421b-b2b0-96e9f37e03eb"
+ <strong>ALOha my name is Kana!!</strong> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/de1c181b-7efa-421b-b2b0-96e9f37e03eb"
 </p>
 <p align="center">
-<em>PLEASE DON'T BE AFRAID OF ME!!! (DO) I DONT BITE (DO) </em> <img width="30" height="30" src="https://github.com/undeadlost/KanaBird/assets/160256094/f0d8fa13-2032-4b99-87b0-589f244e1bf5"
+<em>DON'T BE AFRAID OF ME PLES</em> <img width="30" height="30" src="https://github.com/undeadlost/KanaBird/assets/160256094/f0d8fa13-2032-4b99-87b0-589f244e1bf5"
 </p>
 <p align="center">
 <strong> I love doing art, playing games, and editing videos.</strong> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/2670675e-02a8-4f04-b6e6-d909c6322f79"
 </p>
 <p align="center">
-<strong> I have a <a href= "https://kanabirb.carrd.co/" >car </a> if you want to see more about me!</strong> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/8b7a9b12-e8ba-40e0-b50a-652ff906939a"
+<strong> I have a <a href= "https://kanabirb.carrd.co/" >car </a> (Carrd) if you want to see more about me!</strong> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/8b7a9b12-e8ba-40e0-b50a-652ff906939a"
 </p>
 
 &nbsp;
