@@ -1,11 +1,12 @@
 <p align="center">
-  <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/2a8be0ed-e28e-46d6-ad86-27f5329675ed"  <h1 align="center"> <strong> . . . There are balloons floating all over the place. It's so colorful . . .</strong> </h1> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/2b1332e5-2e1b-4ecc-9aa9-4a6d24b8e01e"<p align="center"> 
+  <img width="20" height="20" src="https://github.com/undeadlost/undeadlost/assets/160256094/9744bfa9-86f5-4316-8749-56cdff03c1ba"  <h1 align="center"> <strong> . . . Seems Lyney is saying some strange things again... it's really worrying . . .</strong> </h1> <img width="20" height="20" src="https://github.com/undeadlost/undeadlost/assets/160256094/9744bfa9-86f5-4316-8749-56cdff03c1ba"<p align="center"> 
 
 
 
 &nbsp; 
 
-![tumblr_d0ca75e32f13f8b3c94f02f5a6ac4b3e_b00b5e31_1280](https://github.com/undeadlost/KanaBird/assets/160256094/d53a6617-58f4-4f5a-8cbe-6c80e18a10cd)
+![tumblr_11d2ea2e5b5fbf345730c574a3df4a14_aacba12c_1280](https://github.com/undeadlost/KanaBird/assets/160256094/a20654e6-e167-4713-9297-dc37dc97772c)
+
 
 
 &nbsp; 
@@ -20,7 +21,7 @@
 
 
 <p align="center">
-  <img width="900" height="600" src="https://github.com/undeadlost/KanaBird/assets/160256094/80816c32-b720-4975-9d15-19e2f036aebd">
+  <img width="700" height="700" src="https://github.com/undeadlost/KanaBird/assets/160256094/92c89890-7ba0-4523-977a-0642f5db6135">
 </p>
 
 &nbsp; 
@@ -29,30 +30,34 @@
 &nbsp;  
  
 <p align="center">
- <strong>ALOha my name is Kana!!</strong> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/de1c181b-7efa-421b-b2b0-96e9f37e03eb"
+ <strong>ALOha my name is Kana!!</strong> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/06f7786a-765b-4778-8460-5ed4f53a48b7"
 </p>
 <p align="center">
-<em>DON'T BE AFRAID OF ME PLES</em> <img width="30" height="30" src="https://github.com/undeadlost/KanaBird/assets/160256094/f0d8fa13-2032-4b99-87b0-589f244e1bf5"
+<em>DON'T BE AFRAID OF ME PLES</em> <img width="40" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/3e23934d-1c05-477e-947d-f1b70143b4cc"
 </p>
 <p align="center">
-<strong> I love doing art, playing games, and editing videos.</strong> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/2670675e-02a8-4f04-b6e6-d909c6322f79"
+<strong> I love doing art, playing games, and editing videos.</strong> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/1ed71ff9-54b4-43bf-b071-d2264dabba78"
 </p>
 <p align="center">
-<strong> I have a <a href= "https://kanabirb.carrd.co/" >car </a> (Carrd) if you want to see more about me!</strong> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/8b7a9b12-e8ba-40e0-b50a-652ff906939a"
+<strong> I have a <a href= "https://kanabirb.carrd.co/" >car </a> (Carrd) if you want to see more about me!</strong> <img width="20" height="20" src="https://github.com/undeadlost/KanaBird/assets/160256094/14eb9778-46ad-4c3f-9f11-8b0fa315add8"
 </p>
 
 &nbsp;
 
-![tumblr_dfb1f21b1e7ac4061a64443f0d12563e_b17088d3_1280](https://github.com/undeadlost/KanaBird/assets/160256094/0d6c1b82-ff4f-4f5f-9ac9-aa3e56b86dce)
+![tumblr_11d2ea2e5b5fbf345730c574a3df4a14_aacba12c_1280](https://github.com/undeadlost/KanaBird/assets/160256094/3ed862a1-34ac-4e30-b90b-412f400c4e6f)
 
 
 &nbsp;
-![tumblr_5c4dbe27d44ee92012fc8894da12c0a3_4d69d880_2048](https://github.com/undeadlost/KanaBird/assets/160256094/45b6be42-dc03-472d-a268-a1867d9563a5)
+![tumblr_361cb4352da2668422b227c6c9239272_320de96f_1280](https://github.com/undeadlost/KanaBird/assets/160256094/daee10c8-8f1d-4b68-81c4-9bb6323b80e1)
+
 
 &nbsp;
 
 <p align="center">
-<i>creds to  <a href= "https://www.tumblr.com/vashwoodyuri" >vashwoodyuri </a> For graphics & dividers!!</i>
+<strong>creds to <a href= "https://www.tumblr.com/cafekitsune" >cafekitsune </a> for dividers!! </strong>
+</p>
+<p align="center">
+<i>creds to  <a href= "https://www.tumblr.com/cirrusism" >cirrusism </a> for graphics!!</i>
 </p>
 <p align="center">
 <i>creds to <a href= "https://ouija.crd.co/#" >ouija </a> , <a href= "https://goldenkamuy.crd.co/#" >golden </a> for stamps!!</i>
@@ -60,5 +65,3 @@
 <p align="center">
 <i>made by <a href= "https://github.com/undeadlost" >Kein </a> for Kana!!</i>
 </p>
-
-
