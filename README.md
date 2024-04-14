@@ -22,7 +22,7 @@
 
 
 <p align="center">
-  <img width="600" height="600" src="https://github.com/undeadlost/KanaBird/assets/160256094/68f0581c-397f-437b-bacd-412dbf4f1be7">
+  <img width="800" height="800" src="https://github.com/undeadlost/KanaBird/assets/160256094/68f0581c-397f-437b-bacd-412dbf4f1be7">
 </p>
 
 &nbsp; 
